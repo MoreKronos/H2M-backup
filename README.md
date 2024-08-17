@@ -31,6 +31,9 @@ Enjoy!
 ## FOR ANY QUESTIONS
 Steam - https://steamcommunity.com/id/lxstwxrdenz/
 
+look at this google doc for more info
+https://docs.google.com/document/d/1pZOWFnZMLrbovSlvHS0KmXNAHi2GWVxbRBR6N2TAKSM/preview
+
 Discord - lxstwxrden. (yes, with a dot)
 
 ## H2M DISCORD SERVERS
